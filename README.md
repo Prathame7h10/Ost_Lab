@@ -1,2 +1,2 @@
 # Ost_Lab
-Author - Prathamesh Khade
+Author - Prathamesh Khade(loser)
